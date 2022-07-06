@@ -1,0 +1,1 @@
+# ayt-kimya-multi-soru-bankasi-32
